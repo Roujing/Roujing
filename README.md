@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Roujing
-- 👀 I’m interested in Economics, dance, piano, guqin, sports
-- 🌱 I’m currently learning Economics
+- 👀 I’m interested in Economics, Dance, Piano, Guqin, Sports
+- 🌱 I’m currently looking forward the PhD position in Economics
 - 📫 How to reach me: 18201759796@163.com
 
 <!---
